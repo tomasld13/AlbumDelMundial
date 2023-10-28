@@ -1,9 +1,5 @@
 # Album del Mundial
 
-[https://lh7-us.googleusercontent.com/QYUoKU430t7gnKo7mLTNpw-pY4RJQnmz0S1dZtsetXwhce9R1uL-iyUghklbbg0bznaVfy0Z1EB0jieycV-ktr6au3qunN-zBl0xVmujElXiIgWYdCPD1eBi51NhXEG_DSpUybNEy6GsBEQeB_ClnVs](https://lh7-us.googleusercontent.com/QYUoKU430t7gnKo7mLTNpw-pY4RJQnmz0S1dZtsetXwhce9R1uL-iyUghklbbg0bznaVfy0Z1EB0jieycV-ktr6au3qunN-zBl0xVmujElXiIgWYdCPD1eBi51NhXEG_DSpUybNEy6GsBEQeB_ClnVs)
-
-[https://lh7-us.googleusercontent.com/qmeIJ1mxycG3rFBSnTCs_piHqP0rOJHsA33ZLGqLsJG_WAfuJh63yaZi0wrzSwtrJY75hVarm4oVqn7hknW4axeXybsA_N1EpUQg1Sg7cjJGaKC1J-VmnAsJfZXhGc-HvVhA9IV09lcVMp4WgNpoFKU](https://lh7-us.googleusercontent.com/qmeIJ1mxycG3rFBSnTCs_piHqP0rOJHsA33ZLGqLsJG_WAfuJh63yaZi0wrzSwtrJY75hVarm4oVqn7hknW4axeXybsA_N1EpUQg1Sg7cjJGaKC1J-VmnAsJfZXhGc-HvVhA9IV09lcVMp4WgNpoFKU)
-
 # **Album del Mundial**
 
 20/11/2022
