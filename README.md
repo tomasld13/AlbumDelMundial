@@ -1,7 +1,5 @@
 # Album del Mundial
 
-# **Album del Mundial**
-
 20/11/2022
 
 **─**
